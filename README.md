@@ -1,1 +1,0 @@
-# Adobe_Challenge_1b
